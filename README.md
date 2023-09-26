@@ -1,4 +1,3 @@
-# travelkuy
 # TravelKuy
 
 🏝️🌴✨🍸🪷
